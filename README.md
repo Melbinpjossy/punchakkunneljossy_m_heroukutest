@@ -1,1 +1,0 @@
-# punchakkunneljossy_m_heroukutest
